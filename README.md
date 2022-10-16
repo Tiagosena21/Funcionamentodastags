@@ -1,4 +1,4 @@
-# As Tags aplicadas nas aulas::school:
+# As Tags utilizadas nas aulas::school:
 
 
 
